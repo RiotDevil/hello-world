@@ -34,14 +34,40 @@ yippee
 9. nueve
 10. deis
 
-okay im done counting
-uhhhhh
-why r u reading this exactly
-r u bored
-do u want something
-im like
-past riot LOL i know nothing about this site
-i cant help u vro
-srry
-have fun with
-whatever ur doing
+okay im done counting \
+uhhhhh \
+why r u reading this exactly \
+r u bored \
+do u want something \
+im like \
+past riot LOL i know nothing about this site \
+i cant help u vro \
+srry \
+have fun with \
+whatever ur doing \
+
+
+
+
+mushroom dance \
+mushroom dance \
+whatever could it mean \
+
+![a white mushroom with a blue top dancing, the mushroom dance from undertale specifically](https://github.com/user-attachments/assets/c2da694a-90f0-406d-8130-ab8866252192)
+
+it means you've lived a life of sin /ref \
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
