@@ -53,10 +53,11 @@ mushroom dance \
 mushroom dance \
 whatever could it mean
 
-![a white mushroom with a blue top dancing, the mushroom dance from undertale specifically](https://tenor.com/view/mushroom-dance-dancing-mushroom-dancing-dance-mushroom-gif-26099536)
+![a white mushroom with a blue top dancing, the mushroom dance from undertale specifically](https://media1.tenor.com/m/cp4j8wW2K68AAAAd/mushroom-dance-dancing-mushroom.gif)
 
 it means you've lived a life of sin /ref
 GIF EMBEDS R HARD OKAY
+THAT TOOK THREE ATTEMPTS WHAT THE HELL
 
 
 
