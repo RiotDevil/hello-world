@@ -44,7 +44,7 @@ past riot LOL i know nothing about this site \
 i cant help u vro \
 srry \
 have fun with \
-whatever ur doing \
+whatever ur doing
 
 
 
