@@ -51,12 +51,12 @@ whatever ur doing \
 
 mushroom dance \
 mushroom dance \
-whatever could it mean \
+whatever could it mean
 
-![a white mushroom with a blue top dancing, the mushroom dance from undertale specifically](https://github.com/user-attachments/assets/c2da694a-90f0-406d-8130-ab8866252192)
+![a white mushroom with a blue top dancing, the mushroom dance from undertale specifically](https://tenor.com/view/mushroom-dance-dancing-mushroom-dancing-dance-mushroom-gif-26099536)
 
-it means you've lived a life of sin /ref \
-
+it means you've lived a life of sin /ref
+GIF EMBEDS R HARD OKAY
 
 
 
